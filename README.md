@@ -1,6 +1,6 @@
 ### Hi there, I'm boatsuka 👋
 
-## I'm a Student Kmitl, Developer, and Future teacher (●'◡'●)
+## I'm a Teacher (●'◡'●)
 
 - 👋 Hi, I’m @boatsuka
 - 👀 I’m interested in ...
